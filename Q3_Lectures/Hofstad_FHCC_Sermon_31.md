@@ -1,4 +1,4 @@
-**Quarter Two / Week 23: Sermon for Shabbat and Sunday**  
+**Quarter Three / Week 31: Sermon for Shabbat and Sunday**  
 **OPERATIONAL RECOVERY: The Pantheon Protocol, Ancient Medicine, and the Resurrection of the Saints**
 
 Readings drawn from the Institute for Scripture Research (ISR) Scriptures and Roman Historical Records
