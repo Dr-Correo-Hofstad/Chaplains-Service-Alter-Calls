@@ -30,7 +30,7 @@
 # 30. Break for repair of church
 # 31. Temple artifacts come out (Decoration)
 # 32. Music clean spirits (Dont let angry or upset people into temple)
-# 33. Security (Barriers, Recruitment, atonemens, confessions, set alter fire, smoke our pycnogonid, VirusTC, burn sick and sacrafice)
+# 33. Security (Barriers, Recruitment, atonemens, confessions, set alter fire, smoke out pycnogonid, VirusTC, burn sick and sacrafice)
 # 34. Frangrence must be mined from farm (plants must be harvested, fruits excluded, vegatable only)
 # 35. Clean all grounds
 # 36. Start replant, prepare food stock, dry starts now, win ROI
