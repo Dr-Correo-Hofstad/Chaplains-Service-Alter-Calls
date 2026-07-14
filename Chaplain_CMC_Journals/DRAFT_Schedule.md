@@ -35,8 +35,8 @@
 # 35. Clean all grounds
 # 36. Start replant, prepare food stock, dry starts now, win ROI
 # 37. Sew new ONLY
-# 38. Sports games (with extra NEVER SPOIL FOOD, SALMON IF ALASKA CAN TRANSFER VIA SILK ROAD SULFUR THEY LIKE, NUCLEAR NO VIBE ALLOWED)
-# 39. Round table about new wars if soldiers are not polite from other sports nations. (silk road unite tribes of Israel, MUST HAVE 12 OR GATE WILL NOT OPEN WITH ROMULAN.) No racism.
+# 38. Sports games (with extra NEVER SPOIL FOOD, SALMON IF ALASKA CAN TRANSFER VIA SILK ROAD SULFUR THEY LIKE, NO NUCLEAR NO RADIOACTIVE VIBE ALLOWED)
+# 39. Round table about new wars if soldiers are not polite from other sports nations. (silk road unite tribes of Israel, MUST HAVE 12 (borders allowing trough travel) OR GATE WILL NOT OPEN WITH ROMULAN (Romulan does not come without permission to pass port through ALL nations)) No racism.
 # 40. WAR GAMES ONLY, ONLY BEEFING NATIONS, LOSERS GET TURNED INTO CATTLE AND KILLED FOR BURNING
 # 41. Burned offering, ONLY FLEW INFECTED VICTIMS, ELSE EAT WHOLY, ALL PARTS, NATIVES LIKE BONES BROTH, LININGS, ETC, SPACE
 # 42. Returning of WAR nations who lost in games for real war trials. OFFER GAMES BEFORE REAL WAR? NEVER OFFER GAMES IF ENEMY SPANS LARGER THAN OWN FORCES.
